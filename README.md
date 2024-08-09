@@ -1,1 +1,1 @@
-# Uni-class-lite
+# Uni-class-lite merupaka proyekan bersama
